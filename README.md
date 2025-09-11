@@ -1,9 +1,14 @@
 ## Hello, I'm Nikola!
-Drummer 🥁
+Drummer 
+<br>
 Guitarist 🎸
+<br>
 Bassist 🎺
+<br>
 Producer 🔊
+<br>
 Pronouns: mu/sic 🖤
+<br>
 Unhealthy into Metal 💔
 
 
