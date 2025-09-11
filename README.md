@@ -10,7 +10,8 @@ Producer 🔊
 Pronouns: mu/sic 🖤
 <br>
 Unhealthy into Metal 💔
-
+<br>
+"I used to code in 7th grade, of course I remember how to do it"
 
 
 <!--
