@@ -1,4 +1,12 @@
-## Hi there 👋
+## Hello, I'm Nikola!
+Drummer 🥁
+Guitarist 🎸
+Bassist 🎺
+Producer 🔊
+Pronouns: mu/sic 🖤
+Unhealthy into Metal 💔
+
+
 
 <!--
 **nikolapernik/nikolapernik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
