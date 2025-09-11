@@ -1,5 +1,5 @@
 ## Hello, I'm Nikola!
-Drummer 
+Drummer 🥁
 <br>
 Guitarist 🎸
 <br>
