@@ -7,8 +7,6 @@ Bassist 🎺
 <br>
 Learning to be a Producer 🔊
 <br>
-Pronouns: mu/sic 🖤
-<br>
 "I used to code in 7th grade, of course I remember how to do it"
 
 
